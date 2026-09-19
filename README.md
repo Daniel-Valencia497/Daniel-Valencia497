@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there | I'm Daniel 👋
 
 #### 🎓 Student | 💻 Developer in progress | 🧠 Lifelong learner
 
